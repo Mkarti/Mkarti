@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mkarti
+- 👋 Hi, I’m Kartikeya
 - 👀 I’m interested in graphic designing 
 - 🌱 I’m currently learning electronics & computer science 
 - 📫 Can connect with me by kartikmishra1225@gmail.com
